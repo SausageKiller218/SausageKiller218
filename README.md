@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SausageKiller218 :3
 - 👀 I’m interested in writing code
-- 🌱 I’m 20 and currently in uni
+- 🌱 I’m 21 and currently in uni
 - 📫 PM: t.me/thecriticallama
 
 <!---
